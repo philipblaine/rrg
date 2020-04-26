@@ -1,0 +1,1 @@
+![Map of Natural Bridge and Surrounding Cliffs](NaturalBridge.jpg)
